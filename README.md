@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am a fressher<br>i am in python devlopment/ai ml<br>i have studied bsc in computer science<br>
+i am a fressher<br>i am in python devlopment/ai ml<br>i have studied bsc in computer science<br>tech anthusiastic<br>
 
 
 ## 🌐 Socials:
